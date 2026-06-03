@@ -1,4 +1,4 @@
-# 
+# Ultime trend-following bot extensions pour Mac OS | Professionnel trend-following bot extensions pour PC Windows. Avec intégration d'API et limitation de débit — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
